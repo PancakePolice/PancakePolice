@@ -1,5 +1,5 @@
 ### Hi there 👋
 
-- 🌱 I’m currently studying IT
+- 🌱 I study Information Technology
 - 📫 My Discord: .pancakepolice
 - 😄 Pronouns: he/him
